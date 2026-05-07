@@ -1,1 +1,1 @@
-There is no wisdom.
+There is no wisdom
